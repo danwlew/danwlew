@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @danwlew
 - 👀 I’m interested in networking and cyber security.
-- 🌱 I’m currently learning how to bouild something from trash.
+- 🌱 I’m currently learning how to build something from trash.
 - 💞️ I do not colaborate with anyone who I do not know.
 - 📫 How to reach me ... well if you are not there because of random situation, you have aleady contact information.
 
